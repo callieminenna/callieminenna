@@ -1,0 +1,4 @@
+- 💜 Hi, I’m @callieminenna
+- 🦋 I’m interested in emojis, learning Scratch
+- 💞 I’m looking to collaborate on making princess games
+- 🌈 Etc
